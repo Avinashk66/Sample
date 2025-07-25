@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **via email "kavinashkumar5125@gmail.com"**
 
-- ⚡ Fun fact **I am the Jesus of IT department**
+- ⚡ Fun fact **I am a voice,not an echo**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
